@@ -6,7 +6,7 @@
 
 ## Ссылка на прохождение 
 
-
+https://drive.google.com/drive/folders/1jFCfWXSEl6wvdvDWOeHG80X2yu7TiNXR
 
  
 ## Игровые механики
